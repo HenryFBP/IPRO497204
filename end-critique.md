@@ -4,6 +4,8 @@
 
 -1/5
 
+These professors make the classroom environment toxic, unwelcoming, and patronizing, especially to undergraduates.
+
 Our instructors constantly change requirements, provide conflicting feedback, and slight us during presentations.
 
 Mancini and Kaplan both are unnecessarily rude and criticize small aspects of presentations to the point of completely stopping presentations to add slide numbers.
